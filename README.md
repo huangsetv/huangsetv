@@ -1,20 +1,16 @@
-:bangbang::bangbang:胖大AV 最新地址发布:bangbang::bangbang:
+:bangbang::bangbang:GG91 最新地址发布:bangbang::bangbang:
 ==
-:fire: :point_right: 【地址一】 ：https://5pdav.com
+:fire: :point_right: 【地址一】 ：https://www.aa7766.com
 ------
-:fire: :point_right: 【地址二】 ：https://6pdav.com
+:fire: :point_right: 【地址二】 ：https://www.dd6699.com
 ------
-:fire: :point_right: 【地址三】 ：https://7pdav.com
+:fire: :point_right: 【地址三】 ：https://www.gg2288.com
 ------
-:fire: :point_right: 【地址四】 ：https://8pdav.com
-------
-:fire: :point_right: 【地址五】 ：https://9pdav.com
-------
-:fire: :point_right: 【永久发布地址】 ：https://pdav.me
+:fire: :point_right: 【永久发布地址】 ：https://www.gg91.com
 ------
 :white_check_mark: 【邮箱联系方式】 ：
 ------
-:point_right: 加入 胖大AV 电报频道  ：
+:point_right: 加入 GG91 电报频道  ：
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
